@@ -1,1 +1,1 @@
-# Wizzz
+# Wizzzz
